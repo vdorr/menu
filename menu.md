@@ -21,8 +21,10 @@
 (grilovaná paprika, čerstvá majoránka, brambory)  
 *bubliny?*  
 **Krautfleckerl**  
+(zelí, čerstvé těstoviny)  
 *grünveltliner*  
 **Kaisersschmarrn**  
+(trhanec, švestky)  
 *kafe/čajik*  
 **Sacher?**  
 
