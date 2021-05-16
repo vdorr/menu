@@ -1,4 +1,4 @@
-#Panda a ještěr vaří
+#Panda a ještěr vaří a pečou
 
 ## Brunch II.
 **Vejce Benedict**  
