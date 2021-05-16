@@ -44,7 +44,7 @@
 
 ## Brunch II.
 **Vejce Benedict**  
-(mrkev a la uzený losos, bramborový lívanec, holandská omáčka)  
+(mrkev a la uzený losos, bramborová placka, zelený chřest, holandská omáčka)  
 **Lívance**  
 *(tak různě?)*  
 *mimosa, kafe, čajik*  
