@@ -3,10 +3,9 @@
 
 **Antipasti**  
 (???)  
-*Prosecco DOC Treviso Brut Millesimato 2019*  
 **Tonnarelli con la bottarga di muggine**  
 (domácí těstoviny, bottarga, citron)  
-*asi oranž?*  
+*Prosecco DOC Treviso Brut Millesimato 2019*  
 **Melanzane alla parmigiana**  
 (grilovaný lilek, buvoličí mozzarella)  
 *asi červené*  
@@ -19,7 +18,7 @@
 **Liptauer**  
 (brynza, paprika)  
 **Gulaschsuppe**  
-(grilovaná papriky, čerstvá majoránka, brambory)  
+(grilovaná paprika, čerstvá majoránka, brambory)  
 *bubliny?*  
 **Krautfleckerl**  
 *grünveltliner*  
