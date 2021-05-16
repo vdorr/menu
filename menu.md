@@ -18,6 +18,8 @@
 
 **Liptauer**  
 (brynza, paprika)  
+**Gulaschsuppe**  
+(grilovaná papriky, čerstvá majoránka, brambory)  
 *bubliny?*  
 **Krautfleckerl**  
 *grünveltliner*  
@@ -27,10 +29,9 @@
 
 ## Indie
 **Dal**  
-**Paneer**  
-**Saag**  
-**Roti**  
-
+**Paneer Tikka**  
+**Saag Aloo**  
+**Kulfi**  
 
 ## Polsko II.
 **Blini**  
